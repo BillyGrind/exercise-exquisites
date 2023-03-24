@@ -1,6 +1,3 @@
-<<<<<<< HEAD
-# La petite maison vert part en Vacance
-=======
 # La petite maison verte part en vacance
 
 Il était une fois, une charmante petite maison verte. 
@@ -20,4 +17,4 @@ Ils prirent la décision de partir de *nuit* pour ne pas savoir dans quelle dire
 Après quelques pas, ils se retrouvèrent dans la **Mer du Nord**, la tête completement sous l'eau.
 "*"gloups" j'ai "gloups" de l'eau "gloups" dans ma chemineé "gloups"* Essaya de dire la maison en pleine noyade.
 Bart se dépécha et s'insèra à l'intérieur de la cheminée et devint le premier **Sirin mi-homme mi-maison** et vécu heureux en ne forment plus qu'un avec l'amour de sa **vie**. 
->>>>>>> development
+

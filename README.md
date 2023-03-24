@@ -13,3 +13,7 @@ Une fois arrivée là-bas, elle croisa Bart De Wever.
 Elle et Bart tombèrent foux amoureux l'un de l'autre, ce fut le **Véritable coup de foudre**!
 Ils voulurent partir quelque part mais où? Personne ne connait ce pays, pas même Bart qui y vit...
 Ils prirent la décision de partir de *nuit* pour ne pas savoir dans quelle direction aller.
+
+Après quelques pas, ils se retrouvèrent dans la **Mer du Nord**, la tête completement sous l'eau.
+"*"gloups" j'ai "gloups" de l'eau "gloups" dans ma chemineé "gloups"* Essaya de dire la maison en pleine noyade.
+Bart se dépécha et s'insèra à l'intérieur de la cheminée et devint le premier **Sirin mi-homme mi-maison** et vécu heureux en ne forment plus qu'un avec l'amour de sa **vie**. 

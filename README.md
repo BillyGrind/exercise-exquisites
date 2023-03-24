@@ -18,3 +18,4 @@ Après quelques pas, ils se retrouvèrent dans la **Mer du Nord**, la tête comp
 "*"gloups" j'ai "gloups" de l'eau "gloups" dans ma chemineé "gloups"* Essaya de dire la maison en pleine noyade.
 Bart se dépécha et s'insèra à l'intérieur de la cheminée et devint le premier **Sirin mi-homme mi-maison** et vécu heureux en ne forment plus qu'un avec l'amour de sa **vie**. 
 
+

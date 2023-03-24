@@ -1,10 +1,5 @@
-# exercise-exquisites
-Exercice **Cadavre Exquis**
+# La petite maison verte part en vacance
 
-Type of challenge : **consolidation**
-Duration : **1 day**
-Team challenge: *4*
-
-**The mission**
-
-Your challenge will be to write crazy stories (in markdown) with your group in a game of exquisite corpse. All members of the team must create a repository called exercise-exquisite-corpse with a README.md which will contain the game itself.
+Il était une fois, une charmante petite maison verte. 
+Elle s'ennuyait seule sur sa parcelle de terre. Une idée lui survint en tête :
+* - "Et si je partais en vacance ?" *
